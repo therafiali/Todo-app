@@ -11,7 +11,7 @@
 Live Project Link: https://lnkd.in/dzGWGhf9
 
 ### Watch Youtube Video:
-[![Watch the video](https://i9.ytimg.com/vi_webp/OLWVr-huvMM/mqdefault.webp?v=659a8b51&sqp=CLiW6qwG&rs=AOn4CLCECqRsp4shLkXfSkuzZ1nci6wtcg)](https://youtu.be/OLWVr-huvMM)
+[![Watch the video](https://i.ytimg.com/vi/OLWVr-huvMM/hqdefault.jpg?sqp=-oaymwEcCPYBEIoBSFXyq4qpAw4IARUAAIhCGAFwAcABBg==&rs=AOn4CLDKYxHZM8VoVcZ_AmezERmi_PzZeg)](https://youtu.be/OLWVr-huvMM)
 
 ### [Connect with me on Linkedin](https://www.linkedin.com/in/therafiali/)
 ### [Directly Contact with me on email](mailto:therafiali@gmial.com)
